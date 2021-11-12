@@ -1,4 +1,7 @@
 - 👋 Hi, I’m frea xinyi lei
+
+
+
 ...
 <!--- this is what I feel after a week of self-teaching creative computing.
 I am still really really shy of touching this media. No matter all kinds of the encouragement.
@@ -18,6 +21,13 @@ So am I going into that door?
 what if I used my grammar wrong. What if I can't understand what they are saying
 
 Yes I will stop thinking and start making.
+
+_above, it is just a little "poem" that I want to record to express the feeling which I think it is really important.
+
+##The manifesto of trying to break this exclusive field
+
+if it 
+
 
 
 
