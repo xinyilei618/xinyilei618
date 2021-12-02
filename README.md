@@ -1,6 +1,6 @@
 # Frea's
 
-to those whoever find a new world intimadating
+##to those whoever find a new world intimadating
 
 **a small peek from the outside**
 
