@@ -17,11 +17,11 @@ what if I used my grammar wrong. What if I can't understand what they are saying
 
 Yes I will stop thinking and start making.
 
-![alt text](image.jpg)
 
 
 
 
+![a8bcf372-45a0-4c45-99fe-02f7af378976](https://user-images.githubusercontent.com/93921644/144508800-0b25baf8-fe7a-48b3-ae29-9324789b16f7.JPG)
 
 
 
